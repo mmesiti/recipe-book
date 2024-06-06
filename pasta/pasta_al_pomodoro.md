@@ -2,7 +2,7 @@
 
 ## Ingredients:
 - 300g spaghetti
-- 4 ripe tomatoes
+- 500g passata
 - 4 garlic cloves
 - 1/4 cup extra-virgin olive oil
 - Fresh basil leaves
